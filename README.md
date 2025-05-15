@@ -1,1 +1,1 @@
-![KakaoTalk_20250511_002052110](https://github.com/user-attachments/assets/99bf211f-f667-4863-8425-f1af60af1a0a)
+![Group 1597880447 (1)](https://github.com/user-attachments/assets/7ed58430-e345-4770-b4eb-22472f37cc77)
